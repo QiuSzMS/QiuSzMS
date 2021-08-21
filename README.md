@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @QiuSzMS. My name is Qiu Caiyong.
+- 👀 I’m interested in Arithmetic Geometry, Music Composing, Mathematics Education and Mathematics in general.
+- 🌱 I’m currently a teacher in Shenzhen Middle School, China.
+- 📫 How to reach me: +86 167 5387 2357, Wechat ID: TeacherCaiyongQiu, Email: qiucaiyong2357@gmail.com
